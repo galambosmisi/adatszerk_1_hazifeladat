@@ -1,0 +1,1 @@
+adatszerk_1_hazifeladat
